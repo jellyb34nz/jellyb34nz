@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jellyb34nz
-- 👀 I’m interested in ... OS, Music, H4ck1ng, 
+- 👀 I’m interested in ... OS, Music, H4ck1ng
 - 🌱 I’m currently learning ... THC, CBD.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Call me ;)
